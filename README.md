@@ -8,4 +8,4 @@ Feel free (no pun intended :smirk:) to make use of the images the way you prefer
 
 ### :mountain_railway: Credits
 
-All credit for the pictures goes to Eastman Kodak Company (a.k.a. Kodak).
+All credit for the pictures goes to Eastman Kodak Company (a.k.a. [Kodak](https://www.kodak.com)).
